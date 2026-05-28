@@ -1,3 +1,3 @@
 # Notizen
 
-Platzhalter
+(Platzhalter)
